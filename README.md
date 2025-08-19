@@ -1,2 +1,2 @@
 # jonior-manhwa
-I give you a perfect manhwa _ انت بوفرلك مانهوا حلال
+I give you a perfect manhwa _ انا بوفرلك مانهوا حلال
